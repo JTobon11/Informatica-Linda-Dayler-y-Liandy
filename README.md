@@ -1,1 +1,1 @@
-# Informatica-Linda-y-Liandy
+# Informatica-Linda-,-Liandy-y-dayler
